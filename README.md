@@ -1,4 +1,4 @@
-# Navneet Shukla — AI Product Manager (Transitioning)
+# Navneet Shukla — AI Product Manager
 
 <div align="center">
 
